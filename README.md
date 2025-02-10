@@ -1,5 +1,6 @@
 
-![me](https://static.wikia.nocookie.net/married-in-red/images/6/62/Chibis.png/revision/latest?cb=20240630040403) my yuri
+
+![1739219544342](https://github.com/user-attachments/assets/1fcae117-20cc-40c7-ab0d-71ec438013bf) art by my friend!!
 
 
 
